@@ -1,6 +1,3 @@
-![tumblr_01086da6c8512207736af3f64d6d151e_7b97c22c_2048](https://github.com/gooicide/gooicide/assets/163074010/8807f5b7-e059-4d92-8f6c-05967d390c16)
+![tumblr_287342dc165838e366acaeb941d20b27_c88e5aed_2048](https://github.com/gooicide/gooicide/assets/163074010/ae668b23-a108-4af5-a265-9c7bdb1de3f6)
 
-![tumblr_b59baa40f6bb022af3524246e815f6a1_b7d20a9b_2048](https://github.com/gooicide/gooicide/assets/163074010/415a7780-a098-4e2b-ba35-cf5bdfe1bdd7)
-
-![tumblr_7ffc8e6b0d72a1a5ccf65b72d2efe95b_919909dd_1280](https://github.com/gooicide/gooicide/assets/163074010/874b7759-132b-4120-a1bb-7744d4219033)
-
+![tumblr_fea7f4529b6acb403b39b8a510037efe_6edd8ca1_2048](https://github.com/gooicide/gooicide/assets/163074010/b1a80abf-92d4-493a-8a35-844ba6d95d82)
