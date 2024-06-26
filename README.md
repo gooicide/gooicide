@@ -5,4 +5,4 @@
 
 [a](https://pronouns.cc/@togeinumaki)　　　　[place](https://retrospring.net/@gooicide)　　　　[where](https://www.webtoons.com/en/drama/lookism/list?title_no=1049)　　　　[i can land.](https://www.youtube.com/watch?v=Z_QfmPZNlhw)
 
-　　　　　　　　　　　　　　![image](https://github.com/gooicide/gooicide/assets/163074010/76bc7cdc-82fa-4432-82a5-13c24a945cd5)
+　　　　　　　　　　　　　![image](https://github.com/gooicide/gooicide/assets/163074010/76bc7cdc-82fa-4432-82a5-13c24a945cd5)
